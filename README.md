@@ -8,7 +8,7 @@
 
 ## If you've decided to join:
 1. Check out [the Official Site](http://100daysofx.com/) for the #100DaysOfExcercise movement. Connect with others on the platform of your choice from this list: www.100DaysOfx.com/connect 
-2. Fork this repo and commit to the [Log](log.md) or to the Alternative, rapid [R1 Log](r1-log.md) (R1 stands for Round 1) daily. [Example](https://github.com/Kallaway/100-days-kallaway-log).
+2. Fork this repo and commit to the [R1 Log](r1-log.md) (R1 stands for Round 1) daily. [Example](https://github.com/Kallaway/100-days-kallaway-log).
 3. **Exercise a minimum a half hour (30 minutes) every day for the next 100 days.**
 4. **Encourage at least two other people in the challenge on Twitter every day! Pay it forward!**
 5. Change the date in [Rules](rules.md) to the day you've started the challenge.
