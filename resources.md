@@ -3,21 +3,16 @@
 [The #100DaysOfX Official Site](http://100daysofx.com/)
 
 ### Articles
-1. 
 
 ### Podcasts
-1.
 
 # Additional Resources on the #100DaysOfCode
 
 ## Helpful Articles
-1. 
 
 ## Projects and Ideas
-1. 
 
 ## Other resources
-1. 
 
 ## Books
 1. ["The War of Art" by Steven Pressfield](http://www.goodreads.com/book/show/1319.The_War_of_Art)
