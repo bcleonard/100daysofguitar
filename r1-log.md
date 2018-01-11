@@ -1,3 +1,4 @@
+
 # 100 Days Of Exercise - Log
 
 ### Day 3: Thursday, January 11, 2018
