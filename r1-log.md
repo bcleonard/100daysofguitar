@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 3: Thursday, January 11, 2018
+
+**Today's Progress**:  Walked for 30 minutes on the treadmill.
+
+**Thoughts**:  I walked this afternoon instead of in the morning.  I think i like walking in the morning better.
+
 ### Day 2: Wednesday, January 10, 2018
 
 **Today's Progress**:  Walked for 30 minutes on the treadmill.
