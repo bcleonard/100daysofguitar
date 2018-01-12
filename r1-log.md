@@ -1,5 +1,10 @@
-
 # 100 Days Of Exercise - Log
+
+### Day 4: Friday, January 12, 2018
+
+**Today's Progress**:  Walked for 30 minutes on the treadmill.
+
+**Thoughts**:  Van Morrison is not very good walking music.
 
 ### Day 3: Thursday, January 11, 2018
 
