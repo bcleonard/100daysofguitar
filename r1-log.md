@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 5: Saturday, January 13, 2018
+
+**Today's Progress**:  Walked for 30 mintues on the treadmill.
+
+**Thoughts**:  I did my 30 minutes in the afternoon.  Then I went geocaching with my friend.  We found 4/5 caches within 3 miles of home.  
+
 ### Day 4: Friday, January 12, 2018
 
 **Today's Progress**:  Walked for 30 minutes on the treadmill.
