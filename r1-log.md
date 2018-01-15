@@ -1,5 +1,17 @@
 # 100 Days Of Exercise - Log
 
+### Day 7: Monday, January 15, 2018
+
+**Today's Progress**:  Walked for 30 minutes on the treadmill.
+
+**Thoughts**:  I think my iwatch (1st gen) is dying.  It only captured 1 minutes of my 32 walk.  Weird.
+
+### Day 6: Sunday, January 14, 2018
+
+**Today's Progress**:  Didn't walk 30 minutes.
+
+**Thoughts**:  I really need to do my exercising before noon.  Anytime after noon and it gets very hard to get away for exercise.  Something always comes up.
+
 ### Day 5: Saturday, January 13, 2018
 
 **Today's Progress**:  Walked for 30 mintues on the treadmill.
