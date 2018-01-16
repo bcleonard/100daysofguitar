@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 8: Tuesday, January 16, 2018
+
+**Today's Progress**:  Walked for 30 minutes on the treadmill.
+
+**Thoughts**:  Again the iwatch didn't capture 1/2 of my walking.
+
 ### Day 7: Monday, January 15, 2018
 
 **Today's Progress**:  Walked for 30 minutes on the treadmill.
