@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 9: Wednesday, January 17, 2018
+
+**Today's Progress**:  Walked for 30 minutes on the treadmill.
+
+**Thoughts**:  Rebooted my watch prior to walking.  got all 30 minutes captured.
+
 ### Day 8: Tuesday, January 16, 2018
 
 **Today's Progress**:  Walked for 30 minutes on the treadmill.
