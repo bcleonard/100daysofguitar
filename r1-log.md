@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 10: Thursday, January 18, 2018
+
+**Today's Progress**:  Walked for 30 minutes on the treadmill.
+
+**Thoughts**:  Today I did 2 15 minute walks.  I might try this in the future.  The key is complete it all before lunch.
+
 ### Day 9: Wednesday, January 17, 2018
 
 **Today's Progress**:  Walked for 30 minutes on the treadmill.
