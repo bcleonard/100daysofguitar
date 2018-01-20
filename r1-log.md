@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 12: Saturday, January 20, 2018
+
+**Today's Progress**:  Did 19 minutes on the treadmill and 11 just moving around.
+
+**Thoughts**:  Just glad to get it done today.
+
 ### Day 11: Friday, January 19, 2018
 
 **Today's Progress**:  Walked for 30 minutes on the treadmill.
