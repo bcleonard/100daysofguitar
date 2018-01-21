@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 13: Sunday, January 21, 2018
+
+**Today's Progress**:  Did 30 minutes on the treadmill.
+
+**Thoughts**:  Sometime in the next week I'm going to restart the zombie couch to 5k.  I started it last year twice and the farthest I got was week 8 day 2.
+
 ### Day 12: Saturday, January 20, 2018
 
 **Today's Progress**:  Did 19 minutes on the treadmill and 11 just moving around.
