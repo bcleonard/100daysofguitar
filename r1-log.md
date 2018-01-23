@@ -2,6 +2,10 @@
 
 ### Day 14: Monday, January 22, 2018
 
+##Today's Progress**:  Did 30 minutes on the treadmill.
+
+**Thoughts**:  Did two 15 minute sessions both during the morning.
+
 **Today's Progress**:  Did 30 minutes on the treadmill.
 
 **Thoughts**:  Did two 15 minute sessions, one before and one after work.  I still think its better to do it all before lunch.
