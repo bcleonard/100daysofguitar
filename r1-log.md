@@ -1,10 +1,18 @@
 # 100 Days Of Exercise - Log
 
-### Day 14: Monday, January 22, 2018
+### Day 16: Wednesday, January 24, 2018
+
+## Today's Progress**:  Did 30 minutes on the treadmill.
+
+**Thoughts**:  I didn't sleep well last night.  I feel better after walking for 30.
+
+### Day 15: Tuesday, January 23, 2018
 
 ##Today's Progress**:  Did 30 minutes on the treadmill.
 
 **Thoughts**:  Did two 15 minute sessions both during the morning.
+
+### Day 14: Monday, January 22, 2018
 
 **Today's Progress**:  Did 30 minutes on the treadmill.
 
