@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 18: Friday, January 26, 2018
+
+##Today's Progress##:  Did 30 minutes
+
+**Thoughts**:  Did 30 minutes on the treadmill in 3, 10 minute sessions.
+
 ### Day 17: Thursday, January 25, 2018
 
 ##Today's Progress##:  Did 33 minutes.
