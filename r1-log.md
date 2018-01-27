@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 19: Saturday, January 27, 2018
+
+##Today's Progress##:  completed 30 minutes on the treadmill
+
+**Thoughts**:  just cranked out 30 minutes on the treadmill before lunch.  Nothing special.
+
 ### Day 18: Friday, January 26, 2018
 
 ##Today's Progress##:  Did 30 minutes
