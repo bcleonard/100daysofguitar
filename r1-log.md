@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 20: Sunday, January 28, 2018
+
+##Today's Progress##:  completed 30 minutes on the treadmill
+
+**Thoughts**:  I tried to read while on the treadmill.  Very hard.  Probably not going to do that again.
+
 ### Day 19: Saturday, January 27, 2018
 
 ##Today's Progress##:  completed 30 minutes on the treadmill
