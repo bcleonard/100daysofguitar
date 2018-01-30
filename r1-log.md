@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 21: Monday, January 29, 2018
+
+##Today's Progress##:  I was unable to get on a treadmill today
+
+**Thoughts**:  Rough night and long busy day.
+
 ### Day 20: Sunday, January 28, 2018
 
 ##Today's Progress##:  completed 30 minutes on the treadmill
