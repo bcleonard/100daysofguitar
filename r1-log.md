@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 22: Tuesday, January 30, 2018
+
+##Today's Progress##:  30 minutes on treadmill.
+
+**Thoughts**:  If I can get on a treadmill for any length of time before noon, I have a better chance of getting all of my exercise in for the day.
+
 ### Day 21: Monday, January 29, 2018
 
 ##Today's Progress##:  I was unable to get on a treadmill today
