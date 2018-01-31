@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 23: Wednesday, January 31, 2018
+
+##Today's Progress##:  32 minutes on treadmill.
+
+**Thoughts**:  Nothing for today.
+
 ### Day 22: Tuesday, January 30, 2018
 
 ##Today's Progress##:  30 minutes on treadmill.
