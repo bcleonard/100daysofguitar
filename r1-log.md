@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 25: Friday, February 02, 2018
+
+##Today's Progress##:  30 minutes on the treadmill.
+
+**Thoughts**:  Nothing for today.
+
 ### Day 24: Thursday, February 01, 2018
 
 ##Today's Progress##:  30 minutes on the treadmill.
