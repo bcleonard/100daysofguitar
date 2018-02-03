@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 26: Sunday, February 03, 2018
+
+##Today's Progress##:  walked for over an hour outside
+
+**Thoughts**:  Walked over a 1.3 miles while participating in Scouting For Food.
+
 ### Day 25: Friday, February 02, 2018
 
 ##Today's Progress##:  30 minutes on the treadmill.
