@@ -1,6 +1,12 @@
 # 100 Days Of Exercise - Log
 
-### Day 26: Sunday, February 03, 2018
+### Day 27: Sunday, February 04, 2018
+
+##Today's Progress##:  walked for 30 minutes on the treadmill
+
+**Thoughts**:  did it in two 15 minute sessions
+
+### Day 26: Saturday, February 03, 2018
 
 ##Today's Progress##:  walked for over an hour outside
 
