@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 29: Tuesday, February 06, 2018
+
+##Today's Progress##:  walked for 30 minutes on the treadmill
+
+**Thoughts**:  walked before work today
+
 ### Day 28: Monday, February 05, 2018
 
 ##Today's Progress##:  walked for 30 minutes on the treadmill
