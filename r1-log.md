@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 31: Friday, February 09, 2018
+
+##Today's Progress##:  walked for 30 minutes on treadmill
+
+**Thoughts**:  knocked it out at lunch today.
+
 ### Day 31: Thursday, February 08, 2018
 
 ##Today's Progress##:  walked for 32 minutes on treadmill
