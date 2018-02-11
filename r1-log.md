@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 33: Sunday, February 11, 2018
+
+##Today's Progress##:  walked for 30 minutes on treadmill
+
+**Thoughts**:  knocked it out before I could play openra
+
 ### Day 32: Saturday, February 10, 2018
 
 ##Today's Progress##:  walked for over an hour for Scouting for Food
