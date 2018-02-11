@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 32: Saturday, February 10, 2018
+
+##Today's Progress##:  walked for over an hour for Scouting for Food
+
+**Thoughts**:  participated in Scouting for food
+
 ### Day 31: Friday, February 09, 2018
 
 ##Today's Progress##:  walked for 30 minutes on treadmill
