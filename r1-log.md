@@ -1,18 +1,30 @@
 # 100 Days Of Exercise - Log
 
-### Day 33: Sunday, February 11, 2018
+### Day 36: Sunday, February 11, 2018
+
+##Today's Progress##:  walked for 30 minutes on treadmill
+
+**Thoughts**:  knocked it out two sessions
+
+### Day 35: Monday, February 12, 2018
+
+##Today's Progress##:  completed the story begins of zombie run couch to 5k
+
+**Thoughts**:  Its been about two months size I almost completed the zombie run couch to 5k.  I decided to start over and this was my first day.
+
+### Day 34: Sunday, February 11, 2018
 
 ##Today's Progress##:  walked for 30 minutes on treadmill
 
 **Thoughts**:  knocked it out before I could play openra
 
-### Day 32: Saturday, February 10, 2018
+### Day 33: Saturday, February 10, 2018
 
 ##Today's Progress##:  walked for over an hour for Scouting for Food
 
 **Thoughts**:  participated in Scouting for food
 
-### Day 31: Friday, February 09, 2018
+### Day 32: Friday, February 09, 2018
 
 ##Today's Progress##:  walked for 30 minutes on treadmill
 
