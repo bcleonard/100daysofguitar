@@ -1,6 +1,24 @@
 # 100 Days Of Exercise - Log
 
-### Day 36: Sunday, February 11, 2018
+### Day 39: Friday, February 16, 2018
+
+##Today's Progress##:  completed 30 minutes on the treadmill
+
+**Thoughts**:  did it in 2 stints
+
+### Day 38: Thursday, February 15, 2018
+
+##Today's Progress##:  completed week 1 workout 1 of zombie couch to 5k
+
+**Thoughts**:  ready to complete it this time
+
+### Day 37: Wednesday, February 14, 2018
+
+##Today's Progress##:  didn't walk today
+
+**Thoughts**:  the day just got away from me
+
+### Day 36: Tuesday, February 13, 2018
 
 ##Today's Progress##:  walked for 30 minutes on treadmill
 
