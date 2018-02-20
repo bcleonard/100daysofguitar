@@ -1,5 +1,17 @@
 # 100 Days Of Exercise - Log
 
+### Day 43: Tuesday, February 20, 2018
+
+##Today's Progress##:  completed 30 minutes on the treadmill
+
+**Thoughts**:  did it in 1 stint
+
+### Day 42: Monday, February 19, 2018
+
+##Today's Progress##:  completed week 1 workout 3 of zombie couch to 5k
+
+**Thoughts**:  ready to complete it this time
+
 ### Day 41: Sunday, February 18, 2018
 
 ##Today's Progress##:  completed 30 minutes on the treadmill
