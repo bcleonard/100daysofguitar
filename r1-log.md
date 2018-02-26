@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 48: Sunday, February 25, 2018
+
+##Today's Progress##:  walked our new puppy for 30 minutes
+
+**Thoughts**:  we got a new puppy on sunday, so now we are starting to take daily walks.
+
 ### Day 47: Saturday, February 24, 2018
 
 ##Today's Progress##:  didn't get a chance to exercise
