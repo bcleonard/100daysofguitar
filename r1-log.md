@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 47: Saturday, February 24, 2018
+
+##Today's Progress##:  didn't get a chance to exercise
+
+**Thoughts**:  i really didn't want to miss, but both my morning and evening were just too overbooked
+
 ### Day 46: Friday, February 23, 2018
 
 ##Today's Progress##:  didn't get a chance to exercise
