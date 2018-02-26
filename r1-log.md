@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 49: Monday, February 26, 2018
+
+##Today's Progress##:  walked Harley Quinnfor 30 minutes
+
+**Thoughts**:  we got a new puppy on sunday, so now we are starting to take daily walks.
+
 ### Day 48: Sunday, February 25, 2018
 
 ##Today's Progress##:  walked our new puppy for 30 minutes
