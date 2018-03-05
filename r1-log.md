@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 54: Sunday, March 04, 2018
+
+##Today's Progress##:  walked Harley Quinn for 30 minutes
+
+**Thoughts**:  lots of puppy walking
+
 ### Day 53: Saturday, March 03, 2018
 
 ##Today's Progress##:  walked Harley Quinn for 30 minutes
