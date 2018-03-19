@@ -1,5 +1,17 @@
 # 100 Days Of Exercise - Log
 
+### Day 63: Tuesday, March 13, 2018
+
+##Today's Progress##:  walked Harley Quinn for over 30 minutes
+
+**Thoughts**:  lots of puppy walking
+
+### Day 62: Monday, March 12, 2018
+
+##Today's Progress##:  completed week 2 workout 3 of zombie couch to 5k
+
+**Thoughts**:  ready to complete it this time
+
 ### Day 61: Sunday, March 11, 2018
 
 ##Today's Progress##:  walked Harley Quinn for over 30 minutes
