@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 64: Wednesday, March 14, 2018
+
+##Today's Progress##:  walked Harley Quinn for over 30 minutes
+
+**Thoughts**:  lots of puppy walking
+
 ### Day 63: Tuesday, March 13, 2018
 
 ##Today's Progress##:  walked Harley Quinn for over 30 minutes
