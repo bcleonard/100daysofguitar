@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 67: Saturday, March 17, 2018
+
+##Today's Progress##:  walked around Space Camp with Pack 75 for 5 hours
+
+**Thoughts**:  go space camp
+
 ### Day 66: Friday, March 16, 2018
 
 ##Today's Progress##:  walked Harley Quinn for over 30 minutes
