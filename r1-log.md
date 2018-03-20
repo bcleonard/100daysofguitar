@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 69: Monday, March 19, 2018
+
+##Today's Progress##:  It was raining so I couldn't take the puppy for a walk and I was just too tired from the weekend.
+
+**Thoughts**:  nada
+
 ### Day 68: Sunday, March 18, 2018
 
 ##Today's Progress##:  walked around Space Camp with Pack 75 for 5 hours
