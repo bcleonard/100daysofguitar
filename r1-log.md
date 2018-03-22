@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 72: Thursday, March 22, 2018
+
+##Today's Progress##:  walked Harley Quinn for over 30 minutes
+
+**Thoughts**:  lots of puppy walking
+
 ### Day 71: Wednesday, March 21, 2018
 
 ##Today's Progress##:  walked Harley Quinn for over 30 minutes
