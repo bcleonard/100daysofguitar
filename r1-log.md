@@ -1,5 +1,17 @@
 # 100 Days Of Exercise - Log
 
+### Day 71: Wednesday, March 21, 2018
+
+##Today's Progress##:  walked Harley Quinn for over 30 minutes
+
+**Thoughts**:  lots of puppy walking
+
+### Day 70: Tuesday, March 20, 2018
+
+##Today's Progress##:  completed week 2 workout 3 of zombie couch to 5k
+
+**Thoughts**:  ready to complete it this time
+
 ### Day 69: Monday, March 19, 2018
 
 ##Today's Progress##:  It was raining so I couldn't take the puppy for a walk and I was just too tired from the weekend.
