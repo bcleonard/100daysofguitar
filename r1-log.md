@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 75: Sunday, March 25, 2018
+
+##Today's Progress##:  didn't walk today.  too cold and rainy to take out harley
+
+**Thoughts**:  probably should have walked on the treadmill.
+
 ### Day 74: Saturday, March 24, 2018
 
 ##Today's Progress##:  walked Harley Quinn for over 30 minutes
