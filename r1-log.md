@@ -1,5 +1,17 @@
 # 100 Days Of Exercise - Log
 
+### Day 77: Tuesday, March 25, 2018
+
+##Today's Progress##:  walked Harley Quinn for over 30 minutes
+
+**Thoughts**:  lots of puppy walking
+
+### Day 76: Monday, March 26, 2018
+
+##Today's Progress##:  completed week 2 workout 3 of zombie couch to 5k
+
+**Thoughts**:  ready to complete it this time
+
 ### Day 75: Sunday, March 25, 2018
 
 ##Today's Progress##:  didn't walk today.  too cold and rainy to take out harley
