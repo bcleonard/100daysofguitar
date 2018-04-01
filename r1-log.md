@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 80: Friday, March 30, 2018
+
+##Today's Progress##:  didn't exercise today.  Was traveling home
+
+**Thoughts**:  none
+
 ### Day 79: Thursday, March 29, 2018
 
 ##Today's Progress##:  worked in server room racking servers all day
