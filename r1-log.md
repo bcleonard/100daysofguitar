@@ -1,6 +1,12 @@
 # 100 Days Of Exercise - Log
 
-### Day 77: Tuesday, March 25, 2018
+### Day 78: Wednesday, March 28, 2018
+
+##Today's Progress##:  worked in server room racking servers all day
+
+**Thoughts**:  that was tiring
+
+### Day 77: Tuesday, March 27, 2018
 
 ##Today's Progress##:  walked Harley Quinn for over 30 minutes
 
