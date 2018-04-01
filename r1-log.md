@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 79: Thursday, March 29, 2018
+
+##Today's Progress##:  worked in server room racking servers all day
+
+**Thoughts**:  that was tiring
+
 ### Day 78: Wednesday, March 28, 2018
 
 ##Today's Progress##:  worked in server room racking servers all day
