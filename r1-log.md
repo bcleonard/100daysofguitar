@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 81: Saturday, March 31, 2018
+
+##Today's Progress##:  walked Harley Quinn for over 30 minutes
+
+**Thoughts**:  lots of puppy walking
+
 ### Day 80: Friday, March 30, 2018
 
 ##Today's Progress##:  didn't exercise today.  Was traveling home
