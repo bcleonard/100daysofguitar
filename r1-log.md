@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 82: Sunday, April 01, 2018
+
+##Today's Progress##:  no walking today
+
+**Thoughts**:  lazy day today
+
 ### Day 81: Saturday, March 31, 2018
 
 ##Today's Progress##:  walked Harley Quinn for over 30 minutes
