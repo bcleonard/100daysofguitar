@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 84: Thursday, April 12, 2018
+
+##Today's Progress##:  none
+
+**Thoughts**:  I fell off the wagon.  I had a couple of out of town trips, the weather was bad and I got lazy.  Time to start again.
+
 ### Day 83: Monday, April 02, 2018
 
 ##Today's Progress##:  walked Harley Quinn for over 30 minutes
