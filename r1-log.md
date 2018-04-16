@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 87: Sunday, April 15, 2018
+
+##Today's Progress##:  no exercise today
+
+**Thoughts**:  weather was bad so I couldn't walk outside
+
 ### Day 86: Saturday, April 14, 2018
 
 ##Today's Progress##:  walked Harley Quinn for over 30 minutes
