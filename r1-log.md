@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 85: Friday, April 13, 2018
+
+##Today's Progress##:  walked Harley Quinn for over 30 minutes
+
+**Thoughts**:  lots of puppy walking
+
 ### Day 84: Thursday, April 12, 2018
 
 ##Today's Progress##:  none
