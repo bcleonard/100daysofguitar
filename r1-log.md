@@ -1,5 +1,17 @@
 # 100 Days Of Exercise - Log
 
+### Day 89: Tuesday, April 17, 2018
+
+##Today's Progress##:  walked Harley Quinn for over 30 minutes
+
+**Thoughts**:  lots of puppy walking
+
+### Day 88: Monday, April 16, 2018
+
+##Today's Progress##:  completed the story begins of zombie run couch to 5k
+
+**Thoughts**:  Its been about 10 days since I've exercised.  I decided to start over and this was my first day.
+
 ### Day 87: Sunday, April 15, 2018
 
 ##Today's Progress##:  no exercise today
