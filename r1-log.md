@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Log
 
+### Day 90: Wednesday, April 18, 2018
+
+##Today's Progress##:  walked Harley Quinn for over 30 minutes
+
+**Thoughts**:  lots of puppy walking
+
 ### Day 89: Tuesday, April 17, 2018
 
 ##Today's Progress##:  walked Harley Quinn for over 30 minutes
