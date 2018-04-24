@@ -1,5 +1,17 @@
 # 100 Days Of Exercise - Log
 
+### Day 92: Friday, April 20, 2018
+
+##Today's Progress##:  walked Harley Quinn for over 30 minutes
+
+**Thoughts**:  lots of puppy walking
+
+### Day 91: Thursday, April 19, 2018
+
+##Today's Progress##:  completed week 1 workout 1 of zombie couch to 5k
+
+**Thoughts**:  ready to complete it this time
+
 ### Day 90: Wednesday, April 18, 2018
 
 ##Today's Progress##:  walked Harley Quinn for over 30 minutes
