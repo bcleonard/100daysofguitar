@@ -1,6 +1,18 @@
 # 100 Days Of Exercise - Round 2 Log
 
-### Round 2 Day 2 Tuesday, May 15, 2018
+### Round 2 Day 4: Thursday, May 17, 2018
+
+##Today's Progress##:  walked for over 30 minutes
+
+**Thoughts**:  puppy went to day care today
+
+### Round 2 Day 3: Wednesday, May 16, 2018
+
+##Today's Progress##:  completed week 1 workout 1 of zombie couch to 5k
+
+**Thoughts**:  ready to complete it this time
+
+### Round 2 Day 2: Tuesday, May 15, 2018
 
 ##Today's Progress##:  walked Harley Quinn for over 30 minutes
 
