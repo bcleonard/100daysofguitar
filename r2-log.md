@@ -1,5 +1,17 @@
 # 100 Days Of Exercise - Round 2 Log
 
+### Round 2 Day 6: Saturday, May 19, 2018
+
+##Today's Progress##:  worked out in the yard for over an hour
+
+**Thoughts**:  yard work couts right?
+
+### Round 2 Day 5: Friday, May 18, 2018
+
+##Today's Progress##:  completed week 1 workout 2 of zombie couch to 5k
+
+**Thoughts**:  ready to complete it this time
+
 ### Round 2 Day 4: Thursday, May 17, 2018
 
 ##Today's Progress##:  walked for over 30 minutes
