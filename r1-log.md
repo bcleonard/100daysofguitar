@@ -1,5 +1,11 @@
 # 100 Days Of Guitar - Log
 
+### Day 2: Tuesday, June 12, 2018
+
+##Today's Progress##:  Practiced for 30 minutes.
+
+**Thoughts**:  I just started learning Smooth Criminal by Alien Ant Farm.  Working on the first lick.
+
 ### Day 1: Monday, June 11, 2018
 
 ##Today's Progress##:  I restrung my flying-v.
