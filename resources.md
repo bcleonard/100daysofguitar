@@ -1,4 +1,4 @@
-# Primary Resources on the #100DaysOfExercise
+# Primary Resources on the #100DaysOfGuitar
 
 [The #100DaysOfX Official Site](http://100daysofx.com/)
 
