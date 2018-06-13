@@ -1,10 +1,34 @@
 # 100 Days Of Exercise - Round 2 Log
 
+### Round 2 Day 9: Tuesday, June 12, 2018
+
+##Today's Progress##:  did yard work for over an hour
+
+**Thoughts**:  yard work will knock it out every single time.
+
+### Round 2 Day 8: Monday, June 11, 2018
+
+##Today's Progress##:  completed the story begins of zombie couch to 5k
+
+**Thoughts**:  ready to complete it this time
+
+### Round 2 Day 8: Monday, May 21, 2018
+
+##Today's Progress##:  completed week 1 workout 3 of zombie couch to 5k
+
+**Thoughts**:  ready to complete it this time
+
+### Round 2 Day 7: Sunday, May 20, 2018
+
+##Today's Progress##:  Didn't exercise.  Waited for the wife to take harley for a walk but she bailed and it started raining.
+
+**Thoughts**:  not going to wait for the wife again
+
 ### Round 2 Day 6: Saturday, May 19, 2018
 
 ##Today's Progress##:  worked out in the yard for over an hour
 
-**Thoughts**:  yard work couts right?
+**Thoughts**:  yard work counts right?
 
 ### Round 2 Day 5: Friday, May 18, 2018
 
