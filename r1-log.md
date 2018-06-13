@@ -1,5 +1,11 @@
 # 100 Days Of Guitar - Log
 
+### Day 3: Wednesday, June 13, 2018
+
+##Today's Progress##:  Practiced for 30 minutes.
+
+**Thoughts**:  Continued working on Smooth Criminal by Alien Ant Farm.  Working on the first lick.  Also started my right-hand picking to get up to speed.
+
 ### Day 2: Tuesday, June 12, 2018
 
 ##Today's Progress##:  Practiced for 30 minutes.
