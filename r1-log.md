@@ -1,5 +1,11 @@
 # 100 Days Of Guitar - Log
 
+### Day 5: Friday, June 15, 2018
+
+##Today's Progress##:  practiced for 30 minutes
+
+**Thoughts**:  Discovered buzzing and had to reset the neck.  After tuning then I realized i had to set the intonation.
+
 ### Day 4: Thursday, June 14, 2018
 
 ##Today's Progress##:  attended my weekly lesson.
