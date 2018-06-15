@@ -1,5 +1,11 @@
 # 100 Days Of Guitar - Log
 
+### Day 4: Thursday, June 14, 2018
+
+##Today's Progress##:  attended my weekly lesson.
+
+**Thoughts**:  Got the entire song mapped out.  Now I just need to be able to play it speed.
+
 ### Day 3: Wednesday, June 13, 2018
 
 ##Today's Progress##:  Practiced for 30 minutes.
