@@ -1,5 +1,11 @@
 # 100 Days Of Guitar - Log
 
+### Day 7: Wednesday, June 20, 2018
+
+##Today's Progress##:  practcied for 30 minutes
+
+**Thoughts**:  Got the entire song mapped out.  Now I just need to be able to play it speed.
+
 ### Day 6: Monday, June 18, 2018
 
 ##Today's Progress##:  practcied for 30 minutes
