@@ -1,8 +1,14 @@
 # 100 Days Of Guitar - Log
 
+### Day 8: Thursday, June 21, 2018
+
+## Todays Progress:  attended my weekly lesson
+
+**Thoughts**:  Started new song, Bring Your Daughter...To The Slaughter by Bruce Dickenson/Iron Main
+
 ### Day 7: Wednesday, June 20, 2018
 
-##Today's Progress##:  practcied for 30 minutes
+##Today's Progress##:  practiced for 30 minutes
 
 **Thoughts**:  Got the entire song mapped out.  Now I just need to be able to play it speed.
 
